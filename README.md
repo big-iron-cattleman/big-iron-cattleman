@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @big-iron-cattleman
+- 👀 I’m interested in knowing and learning all kinds of stuff ,polymathy ...
+- 🌱 I’m currently learningmany things ...
+- 💞️ I’m looking to collaborate on anything that involves the future,the present and the past ...
+- 📫 How to reach me  : you dont need to ......... ill find yo ass.
+- 😄 Pronouns:he/him ...
+- ⚡ Fun fact: you name it ......i know it
+- 
+
+<!---
+big-iron-cattleman/big-iron-cattleman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
